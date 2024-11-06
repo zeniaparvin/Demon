@@ -20,3 +20,8 @@ very long pause….
 How do a Robot eat pizza??
 
 one byte at a time. lol
+
+What is joke?
+This repo is biggest joke.
+hehehe.
+
